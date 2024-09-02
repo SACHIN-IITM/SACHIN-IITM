@@ -13,4 +13,4 @@ I'm a quick learner and always eager to expand my knowledge. I'm committed to st
 
 I'm actively seeking opportunities to work with forward-thinking teams that value creativity, innovation, and a commitment to excellence. If you have a project or job opportunity that aligns with my skills and aspirations, I'd love to connect and explore possibilities.
 
- Feel free to reach out to me through LinkedIn messaging or sachinworkofficial7@gmail.com / 9310282365 . Let's connect, collaborate, and build amazing web experiences together!
+ Feel free to reach out to me through LinkedIn messaging or sachinworkofficial7@gmail.com / 9311054511 . Let's connect, collaborate, and build amazing web experiences together!
